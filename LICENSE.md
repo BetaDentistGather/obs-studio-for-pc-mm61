@@ -1,4 +1,4 @@
-# 
+# OBS Studio for PC | OBS Studio for Windows updated Extension: scene-switching & virtual-camera is the best OBS Studio for PC | OBS Studio for Windows extension, featuring
 
 
 
